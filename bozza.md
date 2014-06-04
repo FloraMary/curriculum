@@ -5,9 +5,13 @@ _corsivo_
 #INFORMAZIONI PERSONALI
 
 Paolicchi Maria Fiore
+
 Nata il....   in.....
+
 Via ....
+
 +39 34....
+
 m.......@gmail.com
 
 #OCCUPAZIONE DESIDERATa
@@ -20,6 +24,7 @@ m.......@gmail.com
 Da Giugno ad Agosto TIROCINIO non retribuito presso il comune di Forte dei marmi nell'edilizia pubblica
 
 Da un anno gestione di pagina web di una scuoladi danza
+
 Realizzazione di volantini 
 
 #istruzione eformazione
@@ -35,4 +40,5 @@ Ottobre 2012 Laurea in ingegneria edile
 
 Ottima conoscenza degli applicativi: Windows, Excel ,Microsoft Access,
 Internet Explorer, Autocad 2009, Architecture 2009, 3d Studio Max 2010.
+
 · Buona conoscenza degli applicativi:Microsoft PowerPoint.
