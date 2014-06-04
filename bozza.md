@@ -39,6 +39,6 @@ Ottobre 2012 Laurea in ingegneria edile
 #conoscenze informatiche
 
 Ottima conoscenza degli applicativi: Windows, Excel ,Microsoft Access,
-Internet Explorer, Autocad 2009, Architecture 2009, 3d Studio Max 2010.
+Internet Explorer, Autocad 2014, Gimp
 
-· Buona conoscenza degli applicativi:Microsoft PowerPoint.
+· Ottima conoscenza degli applicativi:Microsoft PowerPoint.
