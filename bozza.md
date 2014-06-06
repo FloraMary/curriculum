@@ -14,18 +14,21 @@ Via ....
 
 m.......@gmail.com
 
-#OCCUPAZIONE DESIDERATa
-
-
 
 #esperienza professionale
 
-
-Da Giugno ad Agosto TIROCINIO non retribuito presso il comune di Forte dei marmi presso i lavori pubblici.
+Da Giugno ad Agosto TIROCINIO non retribuito presso il comune di Forte dei marmi presso i lavori pubblici per svolgimento tesi. Durante questo periodo mi sono stati affidati anche incarichi di vario genere.
 Dire cosa hai fatto.
 
-Da un anno gestione di pagina ~~web~~ facebook di una scuola di danza, cura della grafica e 
+Da un anno gestione di pagina ~~web~~ facebook della scuola di danza Patchouli, cura della grafica e 
 Realizzazione di volantini 
+Pubbliche relazioni
+
+Collaborazione nell'organizzazione di spettacoli di danza
+
+LAvorato presso Hotel Augustus, gestione del magazzino, carico e scarico merci dal softwere di contabilità
+
+barista e cameriera presso sagra gastronomica 
 
 #altre esperienze
 
@@ -42,12 +45,11 @@ Forte Rewind???
 · Collaborazione con il Comune di Pisa e l’Università di Pisa per il
 processo partecipativo “Sant’Ermete Partecipa” nell’anno 2009 DI COSA TI SEI OCCUPATA???
 
-Ottobre 2012 Laurea in ingegneria edile VOTO??
+Ottobre 2012 Laurea in ingegneria edile VOTO?? con tesi dal titolo: progettazione preliminare di un centro diurno per anziani a seguito di collaboraione con l'ufficio dei lavori pubblici del comune di forte dei marmi
 
 #conoscenze informatiche
 
-Ottima conoscenza degli applicativi: Windows, pacchetto Office, Autocad 2014, Gimp EMAIL, FACEBOOK
-
+Ottima conoscenza degli applicativi: Windows, pacchetto Office, Autocad 2014, Gimp, EMAIL, FACEBOOK, movie maker
 
 #conoscenze linguistiche
 
